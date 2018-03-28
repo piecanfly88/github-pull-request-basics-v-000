@@ -1,0 +1,1 @@
+It would be foolish not to accept my request and pull my fork with ground breaking changes into your repo.  You can thank me now or you can thank me later, preferably the latter.  The rich and famous have a funny way of forgetting where they came from.
